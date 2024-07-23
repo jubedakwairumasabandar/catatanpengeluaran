@@ -1,1 +1,2 @@
-gg
+jubeda kwairumasabandar
+tugas metodelogi penelitian
