@@ -1,2 +1,0 @@
-jubeda kwairumasabandar
-tugas metodelogi penelitian
