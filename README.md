@@ -1,2 +1,0 @@
-# catatanpengeluaran
-projeck akhir
